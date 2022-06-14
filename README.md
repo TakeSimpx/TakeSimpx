@@ -1,1 +1,1 @@
-Hakkai... pelear... no es doloroso. Lo que duele mas que nada... Es la soledad
+𝓗𝓪𝓴𝓴𝓪𝓲... 𝓟𝓮𝓵𝓮𝓪𝓻... 𝓝𝓸 𝓮𝓼 𝓭𝓸𝓵𝓸𝓻𝓸𝓼𝓸. 𝓛𝓸 𝓺𝓾𝓮 𝓭𝓾𝓮𝓵𝓮 𝓶𝓪𝓼 𝓺𝓾𝓮 𝓷𝓪𝓭𝓪... 𝓔𝓼 𝓵𝓪 𝓼𝓸𝓵𝓮𝓭𝓪𝓭.
